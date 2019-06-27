@@ -1,4 +1,4 @@
-# Setoolkit7.7.5 No Rooting
+# Setoolkit7.7.2 No Rooting
 
 My Youtube : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
